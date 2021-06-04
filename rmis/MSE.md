@@ -1,3 +1,7 @@
+# Видео
+
+https://www.youtube.com/watch?v=wO6-9mcFQ8k
+
 # ЧЛЕНЫ КОМИССИИ:
 
 - Тер: #153;
